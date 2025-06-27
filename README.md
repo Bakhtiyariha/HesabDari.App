@@ -1,4 +1,4 @@
-﻿[English](#english) | [فارسی](#فارسی)
+[English](#english) | [فارسی](#فارسی)
 
 ---
 
